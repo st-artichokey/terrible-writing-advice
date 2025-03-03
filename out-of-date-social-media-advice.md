@@ -14,4 +14,4 @@ It got so bad that that anytime a new connection did that, it was an immediate u
 
 So my advice? Write your book, do social media like you do, but don't go around pestering folks to like your book's page, buy your book, or whatever. Don't base your success on what worked for one or two exceptions. Instead do what works for the majority: write a good book.
 
-But then I deleted my accounts and am very smug about it.
+But then I deleted my accounts a couple years ago and am still very smug about it.
